@@ -1,1 +1,0 @@
-# cepteki-para-app
